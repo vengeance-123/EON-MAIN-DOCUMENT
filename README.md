@@ -147,6 +147,7 @@ and both of them were looking at Blank Grabber (Steals Tokens, Cookies and etc..
 He also uses AI to do his own work
 
 <img width="995" height="592" alt="AI user" src="https://github.com/user-attachments/assets/bb7797c5-4192-4172-a91e-9c2d44b6471f" />
+<img width="749" height="834" alt="image" src="https://github.com/user-attachments/assets/69128af6-3863-4a6e-9431-e09bc837a54f" />
 <img width="1232" height="692" alt="Screenshot 2026-04-14 004142" src="https://github.com/user-attachments/assets/b319ba92-2b47-44d8-8b02-69f0aef83d64" />
 
 
@@ -157,6 +158,10 @@ He also uses AI to do his own work
 https://services.eonfn.net/ EON THEIR WEBSITE
 
 https://erafn.dev/ ERA THEIR WEBSITE
+
+## 11. RIO BUYING BOOSTS OF A LOGGED ACCOUNT
+
+https://github.com/user-attachments/assets/8b2cf3bb-ce09-4c0c-8afc-03fe3aa60ea9
 
 
 
