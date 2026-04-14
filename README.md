@@ -56,7 +56,7 @@ The following are **documented allegations supported by evidence below**:
 Below is a collection of real evidence.
 
 
-## 1. RIO/GREENWOOD/PLAGUE/DAVID HAVING A INFORMATION LOGGER FOR HIS OLD PROJECT EXIT, THEY JUST GOTTA PRESS LAUNCH AND THEY HAVE ALL YOUR INFORMATION AND TOKENS
+## 1. GREENWOOD HAVING A INFORMATION LOGGER FOR HIS OLD PROJECT EXIT, THEY JUST GOTTA PRESS LAUNCH AND THEY HAVE ALL YOUR INFORMATION AND TOKENS
 
 <img width="968" height="1414" alt="logger rio" src="https://github.com/user-attachments/assets/ee9e4370-59bc-4f2a-8f53-2b296bc1f14d" />
 
