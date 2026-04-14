@@ -55,17 +55,10 @@ The following are **documented allegations supported by evidence below**:
 
 Below is a collection of real evidence.
 
-## 1. ABUSING
 
+## 1. RIO/GREENWOOD/PLAGUE/DAVID HAVING A INFORMATION LOGGER FOR HIS OLD PROJECT EXIT, THEY JUST GOTTA PRESS LAUNCH AND THEY HAVE ALL YOUR INFORMATION AND TOKENS
 
-EON TELLING THEIR OWN MEMBERS TO REPORT A SERVER TO EARN IN GAME REWARDS
-(in return he would give them donation packs that include cosmetics in his own project (Eon also did this exact behavior to other projects before like Solaris....)
-
-<img width="1022" height="44" alt="577437292-dd083359-4af2-46f2-a229-80876ee665ab" src="https://github.com/user-attachments/assets/ed01da32-89c7-40c7-9f34-33651ef079d4" />
-
-
-
-<img width="1284" height="778" alt="577442245-13dead48-b324-448d-844f-8f4d30d789bf" src="https://github.com/user-attachments/assets/e68f92d5-165a-4a61-86d5-af8ef9acd295" />
+<img width="968" height="1414" alt="logger rio" src="https://github.com/user-attachments/assets/ee9e4370-59bc-4f2a-8f53-2b296bc1f14d" />
 
 
 
@@ -162,6 +155,19 @@ https://erafn.dev/ ERA THEIR WEBSITE
 ## 11. RIO BUYING BOOSTS OF A LOGGED ACCOUNT
 
 https://github.com/user-attachments/assets/8b2cf3bb-ce09-4c0c-8afc-03fe3aa60ea9
+
+
+## 12. ABUSING
+
+
+EON TELLING THEIR OWN MEMBERS TO REPORT A SERVER TO EARN IN GAME REWARDS
+(in return he would give them donation packs that include cosmetics in his own project (Eon also did this exact behavior to other projects before like Solaris....)
+
+<img width="1022" height="44" alt="577437292-dd083359-4af2-46f2-a229-80876ee665ab" src="https://github.com/user-attachments/assets/ed01da32-89c7-40c7-9f34-33651ef079d4" />
+
+
+
+<img width="1284" height="778" alt="577442245-13dead48-b324-448d-844f-8f4d30d789bf" src="https://github.com/user-attachments/assets/e68f92d5-165a-4a61-86d5-af8ef9acd295" />
 
 
 
