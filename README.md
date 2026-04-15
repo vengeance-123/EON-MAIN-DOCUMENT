@@ -15,7 +15,7 @@ A structured overview of concerns and bad behavior surrounding "Project Eon".
 
 ## Overview
 
-In early 2025, multiple conflicts emerged involving an individual known as "Eon" (also referred to as David / Greenwood / Rio / Plague).
+In early 2025, multiple conflicts emerged involving Project Eon Owned by 4 names 1 man.
 
 Members of the community attempted to address these issues at the time, but those efforts were unsuccessful. Due to renewed attention, this document serves as a central archive of information and evidence.
 
